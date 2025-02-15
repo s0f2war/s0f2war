@@ -2,7 +2,7 @@
 - 👀 I’m interested in software engineer 
 - 🌱 I’m currently learning javsscript 
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me discord usernamd unknownbait12 
+- 📫 How to reach me discord username unknownbait12 
 - 😄 Pronouns: he his
 - ⚡ Fun fact: i am great at fnf
 
